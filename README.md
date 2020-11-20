@@ -1,0 +1,2 @@
+# Airdrops
+Airdrops are events where we can earn cryptocurrencies easily and for free just by performing tasks on social networks, we can also obtain coins by inviting friends to the project, they are an excellent option to gain experience in the world of cryptocurrencies and be able to capitalize ourselves to start operating, It is important to verify their authenticity so as not to fall into scams, some projects are fraudulent and require payments for the release of the coins, it is important to investigate before entering projects to avoid bad times
